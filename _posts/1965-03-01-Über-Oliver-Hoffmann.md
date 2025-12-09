@@ -55,4 +55,6 @@ Die Kandidatur von [Liste Madeleine Petrovic](https://liste-petrovic.at) und [MF
 Nach der Nationalratswahl 2024 habe ich die
 [Parlamentarische Bürgerinitiative zur Entlassung der Bundesregierung Nehammer-Kogler](https://www.parlament.gv.at/gegenstand/XXVIII/BI/19)
 gestartet.
-Seit April 2025 bin ich Präsident der [Union Souveränität](https://souveraenitaet.org/).
+2025 habe ich mich an der Initiative
+[NEIN zu den IGV der WHO](https://neinzuigv.at/)
+beteiligt.
